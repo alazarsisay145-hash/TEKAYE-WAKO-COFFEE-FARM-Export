@@ -1,4 +1,4 @@
-# BUNA ORIGIN — Production Buyer Website
+# TEKAYE WAKO COFFEE — Production Buyer Website
 
 Company: TEKAYE WAKO COFFEE FARM & EXPORT
 Founder & farmer: Tekaye Wako
